@@ -4,7 +4,7 @@
 🧠 Apaixonado por lógica e desenvolvimento back-end<br/>  
 🎨 Apesar disso, meu perfil tem bastante front-end também<br/>  
 🚀 Sempre buscando aprender e melhorar minhas habilidades<br/>
-Aqui vai um link para o meu contato pessoal: https://w.app/iyqtku
+Aqui vai um link para o meu contato pessoal: https://wa.me/5531982197769
 
 
 ## 🌐 Socials:
